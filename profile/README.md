@@ -36,7 +36,10 @@
 <br>
 
 ### Contact
-[열린교회](https://www.yullin.org)  [Yullin Youth](https://www.youtube.com/@yullinyouth426)
+문의 : yullindevteam001@gmail.com
+<br>
+[열린교회](https://www.yullin.org)  [Yullin Youth](https://www.youtube.com/@yullinyouth426) 
+
 <!--
 
 **Here are some ideas to get you started:**
